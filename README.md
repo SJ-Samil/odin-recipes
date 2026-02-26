@@ -1,0 +1,1 @@
+Starting the project i didnt know what im supposed to do, after completing it i feels like i really can go with my goal . its very interesting 
